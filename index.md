@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Maverick Gamers
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. we plan to talk about board games!!!
